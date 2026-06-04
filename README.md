@@ -2,7 +2,7 @@
 
 **Auteur :** koudadzejosias-wq  
 **Date :** 04 juin 2026  
-**Cible initiale :** Bakugo (Alias forum : Itachi)  
+**Cible initiale :** Bakugo katsuki   
 **Statut :** Finalisé (TLP:CLEAR)
 
 ---
